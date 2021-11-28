@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @Khachouk
 - 👀 I’m interested in AI, ML, Computer vision, and cybersecurity
-- 📫 How to reach me mahmoud.khachouk@gmail.com
+- 📫 Reach me at mahmoud.khachouk@gmail.com
